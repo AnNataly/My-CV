@@ -1,2 +1,3 @@
 # My-CV
-for study
+https://AnNataly.github.io/My-CV/cv
+https://AnNataly.github.io/My-CV/
